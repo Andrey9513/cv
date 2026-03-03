@@ -1,7 +1,6 @@
 # System architect / team lead
 
 Синичкин Андрей Александрович, 30 лет, Казань  
-485000 руб. до вычета налогов
 
 +7-950-327-60-47  
 sinichkin.andrei95@gmail.com  
